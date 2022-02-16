@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @JaguarPredator
+- 👀 I’m interested in getting rich
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on interesting ideas
+- 📫 You can reach me through email 314393456@qq.com 
